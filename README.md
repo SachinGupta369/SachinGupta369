@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @SachinGupta369
-- 👀 I’m interested in Tech World, Geopolitics
+- 👀 I’m interested in Tech World, Web3, Geopolitics
 - 🌱 I’m currently learning Full Stack Web Developer
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me rs9055828@gmail.com
